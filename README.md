@@ -1,2 +1,2 @@
-# We-Remember.us
+# We Remember
 Let us not forget.
